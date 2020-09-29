@@ -5,5 +5,9 @@ hungry
 I want 
 thai food
 and 
-watch 
+watch
+some anime
+watch Berserk(1997 ver)
+
 shameless
+
