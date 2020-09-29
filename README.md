@@ -3,7 +3,7 @@ I  am
 really 
 hungry 
 I want 
-fried chicken
+thai food
 and 
 watch 
-some anime
+shameless
