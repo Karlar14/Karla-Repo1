@@ -1,4 +1,4 @@
 # Karla-Repo1
 I  am really hungry 
-I want fried chicekn
+I want fried chicken
 and watch some anime
