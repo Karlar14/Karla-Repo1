@@ -3,9 +3,11 @@ I  am
 really 
 hungry 
 I want 
-fried chicken
+thai food
 and 
-watch 
+watch
 some anime
-
 watch Berserk(1997 ver)
+
+shameless
+
