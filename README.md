@@ -7,3 +7,5 @@ fried chicken
 and 
 watch 
 some anime
+
+watch Berserk(1997 ver)
